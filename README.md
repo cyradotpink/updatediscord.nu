@@ -1,0 +1,1 @@
+"Must be your lucky day, there's a new update!" Shut up shut up shut up shut up shut up shut up
